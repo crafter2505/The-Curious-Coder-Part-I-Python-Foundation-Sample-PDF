@@ -35,7 +35,7 @@ Examples are Minecraft/PvP themed (players, ranks, tournaments) so they're easy 
 
 ## Free sample
 
-The sample chapter is in the repo you can either download the whole repo or just the pdf file only.
+The free sample chapter is included in this repo. Download the PDF directly: [The-Curious-Coder-Part-I-Free-Sample.pdf](The-Curious-Coder-Part-I-Free-Sample.pdf)
 
 Read it first. If the style works for you, the full book is linked below.
 
