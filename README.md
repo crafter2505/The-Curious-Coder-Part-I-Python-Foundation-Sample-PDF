@@ -41,7 +41,14 @@ Read it first. If the style works for you, the full book is linked below.
 
 ## Get the full book
 
-for the full book you need for purchase it. Please contract with me(the Author in any Social Media given bellow.) to buy it.
+**How to buy:** Message me directly and I'll send you the PDF through an email directly after payment.
+
+- **Discord:** [crafter_2505](https://discord.com/channels/crafter_2505yt)
+- **Instagram:** [@crafter_2505](https://instagram.com/crafter_2505)
+
+I recommend to message in **Instagram**.
+
+I usually reply within a day. If you have questions about the book before buying, ask — happy to help.
 
 ## About the author
 
